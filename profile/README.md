@@ -44,7 +44,7 @@ We are always looking for passionate individuals to join our team. Explore caree
 
 ## Contact Us
 
-For more information about our services or to get in touch, please visit our [Contact Page](https://onewell.org/contact/).
+For more information about our services or to get in touch, please visit our [Contact Page](https://onewell.org/contact-us/).
 
 ---
 
